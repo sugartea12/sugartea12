@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @sugartea12
-- 👀 I’m interested about coding on here
+- 👀 I’m interested in the coding on here
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on Github if I can.
 - 📫 How to reach me at my email Tanyaemartinez@outlook.com
